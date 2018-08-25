@@ -1,0 +1,1 @@
+dyslexic_translate_starfinder
